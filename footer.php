@@ -1,0 +1,1 @@
+ 2023 &copy;  nn xxxxxxxxxxxxxxxx . xxx. All rights reserved 2023.
